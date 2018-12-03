@@ -43,8 +43,11 @@ Team EATS
 Contact Details:
 
 Abdul Hameed Azeemi (l154031@lhr.nu.edu.pk)
+
 Mohammad Hamza Sohail (l154074@lhr.nu.edu.pk)
+
 Talha Zubair (l154166@lhr.nu.edu.pk)
+
 Avais Muhib Ur Rasool (l154289@lhr.nu.edu.pk)
 
 
